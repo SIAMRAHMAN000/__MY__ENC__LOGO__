@@ -1,0 +1,2 @@
+# __MY__ENC__LOGO__
+:\ ENCODED LOGO :D
